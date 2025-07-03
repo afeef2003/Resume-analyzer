@@ -550,4 +550,4 @@ For issues and questions:
 
 ---
 
-**Made with ❤️ by Syeda Shamama Afeef**
+**Made with ❤️ by Pathan Afnan Khan**
